@@ -9,8 +9,8 @@
 
 
 ### Task 3
-![image](https://github.com/user-attachments/assets/1c621eb6-3d24-435f-8fbc-044b86a16915)
+![image](https://github.com/user-attachments/assets/53311ebb-8219-4abf-9190-0cbd2cb74a17)
 
 
 ### Task 4
-![image](https://github.com/user-attachments/assets/33977275-d457-492f-ac91-5a19dec57a95)
+![image](https://github.com/user-attachments/assets/853d2290-d992-497b-8420-09389d4fe9b5)
