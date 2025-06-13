@@ -9,7 +9,7 @@
 
 
 ### Task 3
-![image](https://github.com/user-attachments/assets/53311ebb-8219-4abf-9190-0cbd2cb74a17)
+![image](https://github.com/user-attachments/assets/0e42c80c-4e14-4102-88ce-93d8985b7b5c)
 
 
 ### Task 4
